@@ -15,6 +15,15 @@ the mainly use for everytime this is most important think of today's generation 
 
 this ai help to daily life mainly school office place and everywhere...
 
+ai is help to women daily life 
+ai is help me for solve difficult doubts...
+
+ai is daily life use tool i love but why ai is help me for every time i am so happy for i use ai and solve all doubts
+
+ai helps for girls:- medical situation and promblems solve in few seconds of ai 
+
+ai helps boys':- study releted and everything ask ai and ans is only few second
+
 i explain project in few lines 
 thank you so much..
 
