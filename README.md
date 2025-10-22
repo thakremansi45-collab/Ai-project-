@@ -11,3 +11,13 @@ artificial intelligence daily life use mainly school college and everytime and e
 
 
 the mainly use for everytime this is most important think of today's generation ai is not ai is use for daily routine life...
+
+
+this ai help to daily life mainly school office place and everywhere...
+
+i explain project in few lines 
+thank you so much..
+
+name:- mansi thakre 
+roll:- D-15
+branch:-CSE
