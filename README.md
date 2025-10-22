@@ -1,4 +1,5 @@
-# Ai-project-
+“Were you amazed to see what's possible with the help of AI?”
+
 Workshop project repository containing a structured report with analysis, explanations, and supporting materials for evaluation.
 
 
